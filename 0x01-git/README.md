@@ -1,2 +1,3 @@
 ## My second attempt
-* create a table
+* Have a winning mindset
+* 
